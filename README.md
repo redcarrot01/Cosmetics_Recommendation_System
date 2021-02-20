@@ -2,7 +2,7 @@
 
 ![https://user-images.githubusercontent.com/38436013/108601469-16f5ad00-73e0-11eb-9d1d-de6895195c99.png](https://user-images.githubusercontent.com/38436013/108601469-16f5ad00-73e0-11eb-9d1d-de6895195c99.png)
 
-​																						<메인>
+​																						
 
 ### **프로젝트 소개**
 
